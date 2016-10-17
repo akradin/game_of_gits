@@ -6,3 +6,5 @@ Joffrey Baratheon was the one to do Ned in, but his story was only about to
 begin, and let me assure you he will DEFINITELY NOT DIE!
 
 I don't care about GoT.
+
+There are other good shows on HBO, though.
